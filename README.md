@@ -1,4 +1,4 @@
-Hi, I’m @Raphael-Regnier, a french designer with a fascination for the craft of digital experiences.
+Hi, I’m Raphael, a french designer with a fascination for the craft of digital experiences.
 
 I love geometry, typography, minimalism and motion. As a designer, I aim to harmoniously combine aesthetics and functionality to resolve the exciting matters of modern interfaces.
 
